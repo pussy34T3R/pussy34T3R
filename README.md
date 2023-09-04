@@ -9,8 +9,6 @@ Studying at Nösnäs gymnasium
 * 🌍  I'm based in Stenungsund city
 * ✉️  You can contact me at [august.bovin05@skola.stenungsund.se](mailto:august.bovin05@skola.stenungsund.se)
 * 🧠  I'm learning Everything
-* 🤝  I'm open to collaborating on Whatever
-* ⚡  Suck my ####
 
 ### Skills
 
